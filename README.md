@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @cannkarrtal08
+- 👀 I’m interested in airdrops
